@@ -8,6 +8,4 @@
 
 💋吃瓜社群💋 http://h.yvfhvaee85.cn/s/wstS
 
-💋查看最新地址💋  https://github.com/51aw01
-
 💋邮箱自动回复最新地址💋 anwangchigua@gmail.com
