@@ -6,7 +6,7 @@
 
 🔥51暗网永久主页🔥  https://cgddz.cc （请复制到浏览器打开）
 
-💋吃瓜社群💋  http://d.ykfeu50.cn/s/5Sn3 （请复制到浏览器打开）
+💋吃瓜社群💋  http://v.sjpul29.cn/s/d52U （请复制到浏览器打开）
 
 💋邮箱自动回复最新地址💋 anwangchigua@gmail.com （请复制到浏览器打开）
 
