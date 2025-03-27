@@ -8,4 +8,8 @@
 
 💋邮箱自动回复最新地址💋 anwangchigua@gmail.com （请复制到浏览器打开）
 
+👍51暗网资源TG社群👍https://t.me/cgddz1
+
+👍51暗网TG频道👍https://t.me/awcg88
+
  【保存本页随时获取最新地址】
