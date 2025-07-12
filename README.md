@@ -1,10 +1,10 @@
 51暗网最新地址更新（7月11日更新）
 
-🔥51暗网大陆入口 🔥 https://51awb22.com （请复制到浏览器打开）
+🔥51暗网大陆入口 🔥 https://51awb23.com （请复制到浏览器打开）
 
 🔥51暗网永久地址🔥  https://51awb.com （请复制到浏览器打开）
 
-💥51暗网app免翻墙下载链接💥 https://aw.yursyji.top
+💥51暗网app免翻墙下载链接💥 https://aw.ybmlrdul.org
 
 💥51暗网app永久下载链接💥https://51awapp.com
 
